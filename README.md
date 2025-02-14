@@ -1,1 +1,2 @@
-- https://docs.google.com/document/d/1_oOXvCUT2-KleNJzDaz-hNaG6RLpP6t-n7BAWCYY7f4/edit?usp=drive_link
+- WORD file: https://docs.google.com/document/d/1_oOXvCUT2-KleNJzDaz-hNaG6RLpP6t-n7BAWCYY7f4/edit?usp=drive_link
+- Slide: https://docs.google.com/presentation/d/1QB4XVi2tj0YhnkNTwanwzhybmGV8e3aj_EP5MG5pEsA/edit?usp=sharing
